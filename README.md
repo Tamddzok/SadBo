@@ -1,3 +1,2 @@
 # SadBoi
-L
 SadBoi 
